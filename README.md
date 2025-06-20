@@ -3,7 +3,6 @@
 - 🌱 Current project: LifeX 3D
 - 💞️ I’m looking to collaborate on (Nothing Now)
 - 📫 How to reach me: jaylencarradine1@gmail.com
-- 😄 Pronouns: He/Him
 
 
 <!---
